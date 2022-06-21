@@ -1,5 +1,5 @@
-Hi there 👋<br>
-# 🇵🇰 I AM MUHAMMAD UZAIR ISHFAQ
+## Hi :boom: <br>
+# I AM MUHAMMAD UZAIR ISHFAQ PK
 ---
 [![](https://visitcount.itsvg.in/api?id=UzairIshfaq1234&icon=2&color=1)](https://visitcount.itsvg.in)<br>
 ### DEVELOPER,PROGRAMMER & DESIGNER <br>
